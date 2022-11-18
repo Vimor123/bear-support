@@ -25,3 +25,7 @@ I wanna kiss you. I wanna hug you. I wanna hear you again. Come on, Sexy, I am n
 ## <3 <3 <3
 
 I'll be waiting for you. Kisses, Sweetheart.
+
+## <3 <3 <3
+
+Happy birthday, my dear, I wish you all the love of this world.
