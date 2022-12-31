@@ -36,4 +36,8 @@ Please come back, I really miss you. Kisses, Dear, I love you.
 
 ## <3 <3 <3
 
-I see your beautiful eyes again.
+I wanna see your beautiful eyes again.
+
+## <3 <3 <3
+
+I hope we see next year, I hope we see soon, I miss you so much. Love you, Dear.
